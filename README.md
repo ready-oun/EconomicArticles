@@ -4,7 +4,7 @@
 
 ## 헤드라인
 (요약과 압축)
-**A1-A30면 읽기(5분)**
+**[A1-A30면 읽기(5분)](https://news.naver.com/main/list.naver?mode=LPOD&mid=sec&oid=015&listType=paper)**
 
 ## 기사 링크
 
